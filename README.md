@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on data-driven projects and automation tools.
 - 📫 How to reach me: [Email me](mailto:dranpura1907@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/dhwanil-ranpura/).
 - 😄 Pronouns: he/him.
-- ⚡ Fun fact: I once boosted portfolio returns by 15% in an international investment competition!
+- ⚡ Fun fact: I boosted portfolio returns by 15% in an international investment competition!
